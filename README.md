@@ -22,4 +22,4 @@
 温馨提示：本站内容仅供年满18周岁的成年人浏览，请遵守当地法律法规合法访问。如您所在地不允许浏览成人内容，请立即离开本站。我们将持续更新内容，为您提供更安全、便捷、高质量的日本AV免费播放体验，欢迎收藏本站，定期回访。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/ss00026/87406 ）</span>
